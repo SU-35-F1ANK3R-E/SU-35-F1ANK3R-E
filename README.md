@@ -17,6 +17,6 @@
         <p align="center"> 
  ${\textsf{\color{#970106}ᜊ(   っ ‌ ૮ ISTP sp1 145 ⁀➷}}$ 
             <p align="right"> 
-                ${\textsf{\color{#c4010c}╭──╯ . . . . . Interact w extreme caution!!}}$ ⊹₊⟡ ${\textsf{\color{#fa0529} heavy anger ussies > <}}$
+                ${\textsf{\color{#c4010c}╭──╯ . . . . . Interact w extreme caution!!}}$ ⊹₊⟡ ${\textsf{\color{#fa0529} heavy anger ussies }}$
             <p align="left">
-⠀ˋ°•*❀⸝⸝˚₊・ ${\textsf{\color{#fa0529}transmasc}}$ | ${\textsf{\color{#fa0529}use only he/him <3}}$
+⠀ˋ°•*❀⸝⸝˚₊・ ${\textsf{\color{#fa0529}transmasc}}$
